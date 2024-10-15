@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @KyeYongChoo
-- 👀 I’m interested in BOARD GAMEEESSSSS CARCASONNE ANYONE?
+- 👀 I’m interested in BOARD GAMEEESSSSS CARCCASONNE ANYONE?
 - 🌱 I’m currently learning C, Java, Verilog
 - 💞️ I’m looking to collaborate on NA HAHA still learning
 - 📫 How to reach me: CHOO0207@e.ntu.edu.sg
