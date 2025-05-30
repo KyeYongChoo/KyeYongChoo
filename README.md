@@ -1,7 +1,3 @@
 - 👋 Hi, I’m @KyeYongChoo
-- 👀 I’m interested in BOARD GAMEEESSSSS CARCCASONNE ANYONE?
-- 🌱 I’m currently learning C, Java, Verilog
-- 💞️ I’m looking to collaborate on NA HAHA still learning
 - 📫 How to reach me: CHOO0207@e.ntu.edu.sg
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Terraforming the Moon is a necessary step before terraforming Mars, though Terraforming Mars is an excellent game
