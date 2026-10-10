@@ -1,3 +1,2 @@
 - 👋 Hi, I’m @KyeYongChoo
-- 📫 How to reach me: CHOO0207@e.ntu.edu.sg
-- 😄 Pronouns: He/Him
+- 🌍 Check out my website at https://kyeyongchoo.github.io
